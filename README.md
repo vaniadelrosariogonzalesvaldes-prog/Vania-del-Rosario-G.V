@@ -40,9 +40,14 @@ Algunos programas que  utilizo o estoy aprendiendo:
 
 ---
 ## redes sociales ##
+---
 instagram: https://www.instagram.com/ 
+---
 youtube: https://www.youtube.com/
+---
 google: https://www.google.com/
+---
+
 
 
 
